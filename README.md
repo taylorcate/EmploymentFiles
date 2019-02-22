@@ -63,7 +63,7 @@ _Social Media Strategist - September 2017 – Present_
 
 ## REFERENCES 
 **KYLE ROBERTS**  
-_Associate Professor of History and Director of the CTSDH at Loyola University Chicago, IL_   
+_Associate Professor of History and Director of the CTSDH at Loyola University Chicago, IL._   
  	Email: kroberts2@luc.edu; phone: 773–508–2215 
 
 **MARGARET HELLER**  
