@@ -62,14 +62,14 @@ _Social Media Strategist - September 2017 – Present_
  - Self-taught graphic designer with experience using Microsoft Paint, Adobe Illustrator, and Photoshop. 
 
 ## REFERENCES 
-**KYLE ROBERTS**
+**KYLE ROBERTS**  
 _Associate Professor of History and Director of the Center for Textual Studies and Digital Humanities at Loyola University Chicago, IL_   
  	Email: kroberts2@luc.edu; phone: 773–508–2215 
 
-**MARGARET HELLER**
+**MARGARET HELLER**  
 _Digital Systems Librarian at Loyola University Chicago, IL._   
 Email: mheller1@luc.edu; phone: 773–508–2686
 
-**NIAMH MCGUIGAN**
+**NIAMH MCGUIGAN**  
 _Head of Reference Services at Loyola University Chicago, IL._   
 Email: nmcguigan@luc.edu; phone: 773-508-2637 
