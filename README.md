@@ -19,7 +19,7 @@ _Certificate in Textual Scholarship - May 2017_
  - for completion of at least four semesters of English 401: Textual Scholarship
 
 ## PROFESSIONAL EXPERIENCE
-**LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL  
+**LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL    
 _Digital Systems Assistant - August 2017 – Present_
  - Manage Loyola eCommons, the open access, institutional repository of Loyola University Chicago. 
  - Maintain communications with publishers and editors to secure permission to archive faculty publications in eCommons. 
@@ -29,7 +29,7 @@ _Digital Systems Assistant - August 2017 – Present_
  - Organize ongoing tasks and projects using Asana project management software. 
  - Develop outreach materials including flyers, tutorial videos, and handouts for library hosted events. 
 
-**LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL
+**LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL  
 _Graduate Student Reference Librarian - August 2017 – Present_
  - Assist patrons with research questions. 
  - Manage an AskLive chat service and answer calls from patrons. 
@@ -37,7 +37,7 @@ _Graduate Student Reference Librarian - August 2017 – Present_
  - Organize reference stacks in conjunction with the Circulation Librarians. 
  - Service copiers/scanners on the work floor.  
 
-**MODERNIST NETWORKS** - Chicago, IL
+**MODERNIST NETWORKS** - Chicago, IL  
 _Social Media Strategist - September 2017 – Present_
  - Develop a sound social media strategy. 
  - Plan and publish weekly posts on Facebook and Twitter accounts using Hootsuite.
@@ -45,7 +45,7 @@ _Social Media Strategist - September 2017 – Present_
  - Log and archive posts for reference in a shared Google folder.
  - Actively curate collections of featured items to be shared.
  
- **OPEN ROAD WRITING** - Chicago, IL
+ **OPEN ROAD WRITING** - Chicago, IL  
 _Freelance Editor and Writer - April 2018 - Present_ 
  - Copyedit works written by individuals who speak English as a second language. 
  - Markup pdfs using the commenting tools in Adobe Acrobat. 
@@ -63,13 +63,13 @@ _Freelance Editor and Writer - April 2018 - Present_
 
 ## REFERENCES 
 **KYLE ROBERTS**  
-_Associate Professor of History and Director of the CTSDH at Loyola University Chicago, IL._   
+_Associate Professor of History and Director of the CTSDH at Loyola University Chicago, IL_   
  	Email: kroberts2@luc.edu; phone: 773–508–2215 
 
 **MARGARET HELLER**  
-_Digital Systems Librarian at Loyola University Chicago, IL._   
+_Digital Systems Librarian at Loyola University Chicago, IL_   
 Email: mheller1@luc.edu; phone: 773–508–2686
 
 **NIAMH MCGUIGAN**  
-_Head of Reference Services at Loyola University Chicago, IL._   
+_Head of Reference Services at Loyola University Chicago, IL_   
 Email: nmcguigan@luc.edu; phone: 773-508-2637 
