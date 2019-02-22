@@ -41,7 +41,7 @@ _Graduate Student Reference Librarian - August 2017 – Present_
  - Organize reference stacks in conjunction with the Circulation Librarians. 
  - Service copiers/scanners on the work floor.  
 
-**MODERNIST NETWORKS** - Chicago, IL  
+**[MODERNIST NETWORKS](http://www.modnets.org/)** - Chicago, IL  
 _Social Media Strategist - September 2017 – Present_
  - Develop a sound social media strategy. 
  - Plan and publish weekly posts on Facebook and Twitter accounts using Hootsuite.
@@ -49,7 +49,7 @@ _Social Media Strategist - September 2017 – Present_
  - Log and archive posts for reference in a shared Google folder.
  - Actively curate collections of featured items to be shared.
  
- **OPEN ROAD WRITING** - Chicago, IL  
+ **[OPEN ROAD WRITING](https://www.openroadwriting.net/)** - Chicago, IL  
 _Freelance Editor and Writer - April 2018 - Present_ 
  - Copyedit works written by individuals who speak English as a second language. 
  - Markup pdfs using the commenting tools in Adobe Acrobat. 
