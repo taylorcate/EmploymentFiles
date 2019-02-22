@@ -35,16 +35,7 @@ _Graduate Student Reference Librarian - August 2017 – Present_
  - Manage an AskLive chat service and answer calls from patrons. 
  - Assist librarians and library staff with special projects.  
  - Organize reference stacks in conjunction with the Circulation Librarians. 
- - Service copiers/scanners on the work floor. 
-
-**OPEN ROAD WRITING** - Chicago, IL
-_Freelance Editor and Writer - April 2018 - Present_ 
- - Copyedit works written by individuals who speak English as a second language. 
- - Markup pdfs using the commenting tools in Adobe Acrobat. 
- - Identify inconsistencies in language and syntax across works.
- - Maintain active communication with authors to ensure their meaning is not lost in the editing process. 
- - Discuss comments and edits with authors over Skype, on the phone, or in person. 
- - Exact changes in Adobe Acrobat once approved by authors. 
+ - Service copiers/scanners on the work floor.  
 
 **MODERNIST NETWORKS** - Chicago, IL
 _Social Media Strategist - September 2017 – Present_
@@ -53,6 +44,15 @@ _Social Media Strategist - September 2017 – Present_
  - Design graphics for posts in Canva and Microsoft Paint. 
  - Log and archive posts for reference in a shared Google folder.
  - Actively curate collections of featured items to be shared.
+ 
+ **OPEN ROAD WRITING** - Chicago, IL
+_Freelance Editor and Writer - April 2018 - Present_ 
+ - Copyedit works written by individuals who speak English as a second language. 
+ - Markup pdfs using the commenting tools in Adobe Acrobat. 
+ - Identify inconsistencies in language and syntax across works.
+ - Maintain active communication with authors to ensure their meaning is not lost in the editing process. 
+ - Discuss comments and edits with authors over Skype, on the phone, or in person. 
+ - Exact changes in Adobe Acrobat once approved by authors.
 
 ## ADDITIONAL SKILLS
  - Skilled writer with a specific interest in creative works and academic writing.  
