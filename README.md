@@ -1,6 +1,6 @@
 # TAYLOR-CATE BROWN 
 _**Open Source Editor and Creator**_ - **Loyola University Chicago**  
-1040 W Granville Ave Apt. 1008, Chicago IL 60660  
+1040 W Granville Ave, Chicago IL 60660  
 taybrown147@gmail.com      
 
 Taylor graduated from Widener University with a BA in English and a minor in environmental studies. In May 2019, she will graduate with her MA in Textual Studies and Digital Humanities from Loyola University Chicago. Taylor is Editor-in-Chief and Co-Founder of [MUDDLE](https://github.com/publishing-bitbytebit/MUDDLE)—the digital lit mag that celebrates the messiness of composition—debuting in April 2019. During her time at Widener, she served as project manager on two scholarly editions of Romantic Poetry and attended a short course on manuscript study at the Wordsworth Trust in Cumbria, England. She is an experienced freelance editor who specializes in poetry, short fiction, screenplays, creative nonfiction, and academic writing. She also has a great deal of experience working with writers who speak English as a second language.
