@@ -76,4 +76,4 @@ Email: mheller1@luc.edu; phone: 773–508–2686
 
 **NIAMH MCGUIGAN**  
 _Head of Reference Services at Loyola University Chicago, IL_   
-Email: nmcguigan@luc.edu; phone: 773-508-2637 
+Email: nmcguigan@luc.edu; phone: 773–508–2637 
