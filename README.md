@@ -63,6 +63,7 @@ _Freelance Editor and Writer - April 2018 - Present_
  - Master of Microsoft Office Suite programs such as Word, Excel, and PowerPoint. 
  - Basic experience with HTML and JAVAscript coding languages. 
  - Experienced TEI–XML encoder. 
+ - Knowledgeable of SEO methods and standards.
  - Self-taught graphic designer with experience using Microsoft Paint, Adobe Illustrator, and Photoshop. 
 
 ## REFERENCES 
