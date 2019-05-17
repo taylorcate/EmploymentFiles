@@ -23,6 +23,13 @@ _Certificate in Textual Scholarship - May 2017_
  - for completion of at least four semesters of English 401: Textual Scholarship
 
 ## PROFESSIONAL EXPERIENCE
+**LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL   
+_Reference Librarian - May 2019 – Present_  
+ - Assist patrons with research questions. 
+ - Be available if reference assistants have questions regarding patron inquiries.
+ - Manage an AskLive chat service and answer calls from patrons.
+ - Develop and report on special projects as assigned.   
+
 **LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL    
 _Digital Systems Assistant - August 2017 – Present_
  - Manage Loyola eCommons, the open access, institutional repository of Loyola University Chicago. 
@@ -31,15 +38,7 @@ _Digital Systems Assistant - August 2017 – Present_
  - Populate and manage faculty profiles in Selected Works Bepress.  
  - Collaborate with faculty on individual archiving projects and profile curation. 
  - Organize ongoing tasks and projects using Asana project management software. 
- - Develop outreach materials including flyers, tutorial videos, and handouts for library hosted events. 
-
-**LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL  
-_Graduate Student Reference Librarian - August 2017 – Present_
- - Assist patrons with research questions. 
- - Manage an AskLive chat service and answer calls from patrons. 
- - Assist librarians and library staff with special projects.  
- - Organize reference stacks in conjunction with the Circulation Librarians. 
- - Service copiers/scanners on the work floor.  
+ - Develop outreach materials including flyers, tutorial videos, and handouts for library hosted events.  
 
 **[MODERNIST NETWORKS](http://www.modnets.org/)** - Chicago, IL  
 _Social Media Strategist - September 2017 – Present_
@@ -57,6 +56,13 @@ _Freelance Editor and Writer - April 2018 - Present_
  - Maintain active communication with authors to ensure their meaning is not lost in the editing process. 
  - Discuss comments and edits with authors over Skype, on the phone, or in person. 
  - Exact changes in Adobe Acrobat once approved by authors.
+ 
+ **LOYOLA UNIVERSITY CHICAGO LIBRARIES** - Chicago, IL  
+_Graduate Student Reference Librarian - August 2017 – May 2019_
+ - Assist patrons with research questions. 
+ - Manage an AskLive chat service and answer calls from patrons. 
+ - Assist librarians and library staff with special projects.  
+ - Organize reference stacks in conjunction with the Circulation Librarians.
 
 ## ADDITIONAL SKILLS
  - Skilled writer with a specific interest in creative works and academic writing.  
