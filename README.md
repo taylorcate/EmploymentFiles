@@ -11,7 +11,7 @@ In addition to editing, Taylor writes poetry, short fiction, and creative nonfic
 **LOYOLA UNIVERSITY CHICAGO** - Chicago, IL  
 _Master of Arts in Textual Studies and Digital Humanities_	
  - Graduated in May 2019
- - Cumulative GPA: 3.85 
+ - Cumulative GPA: 3.86 
 
 **WIDENER UNIVERSITY** - Chester, PA  
 _Bachelor of Arts in English with a Minor in Environmental Studies_  
